@@ -44,4 +44,4 @@ Voit ottaa minuun yhteyttä sähköpostitse: _tässäonkursivointi@sähköposti.
 >
 > Loppu.
 
-© 2025 Minun Hienot Sivut
+© 2025 Minun Hienot Sivuni
